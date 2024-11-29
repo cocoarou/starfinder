@@ -46,3 +46,35 @@ Ma anche qui non c’è tregua. Alexanov inizia a comportarsi in modo strano, co
 Mentre un silenzio colmo di tensione cala nella stanza, un ologramma appare, emergendo dalla testa del Mechanicus. Un’entità scheletrica, inumano e privo di pietà, ci scruta. Il suo sguardo si sofferma su Xa’Vor, come se osservasse una preda, un istante che sembra durare un’eternità.
 
 Ma Tyrion agisce senza esitazione. Distrugge ogni traccia del Mechanicus, interrompendo la comunicazione. Ora siamo soli, sospesi nello spazio più remoto dell’universo, circondati da una vastità che non ci dà tregua. Il buio delle stelle più antiche ci osserva, e io sento il peso dell’ignoto gravare su di noi, come se fossimo solo pedine in un gioco troppo grande per essere compreso.
+
+## Capitolo VII: Il Segnale nelle Tenebre
+Il ponte della nostra nave è silenzioso, ma il silenzio non è mai rassicurante. I miei occhi cibernetici scorrono sulle letture del radar, cercando di decifrare un segnale proveniente da un punto nello spazio. È debole, quasi indistinguibile dal rumore di fondo dell’immensità siderale, ma abbastanza chiaro da attirare la nostra attenzione. Si tratta di un agglomerato di navi spaziali, relitti intrecciati come un cimitero di acciaio, una testimonianza muta delle guerre e delle tragedie che permeano ogni angolo dell’Imperium.
+
+Tyrion e io rimaniamo a bordo, mentre i tre Space Marine — Brutus, Xa’Vor e Azrael — partono con una navicella ausiliaria per esplorare i resti. Il tempo passa lento, ogni istante sembra trascinarsi come se l’universo stesso trattenesse il respiro. Poi, senza preavviso, il silenzio si spezza. Un segnale d’emergenza risuona attraverso le nostre comunicazioni, carico di allarme e confusione. Qualcosa sta accadendo sulla nave relitto. Un abominio.
+
+## Capitolo VIII: L’IA Dannata
+Gli Space Marine riferiscono che un essere generato dal Warp si è fuso con l'intelligenza artificiale della nave. Questo orrore, come un’ombra di carne e metallo, ha preso forma utilizzando carcasse, armature distrutte e detriti. Un’entità mostruosa, nata dalla follia del Warp, ora vaga tra i relitti, distruggendo tutto ciò che incontra. Non posso restare a guardare. Lasciando Tyrion a difendere la nostra nave, prendo la mia pistola al plasma e mi lancio verso la navicella ausiliaria per raggiungere i Marine.
+
+Quando arrivo, la scena che si presenta davanti ai miei occhi è surreale. L’abominio torreggia sopra di loro, un’orribile amalgama di acciaio contorto e membra innaturali. Ma non sono soli: tra i detriti si muove un Dreadnought, riattivato come se la sua volontà avesse trovato nuova forza per combattere. È con noi, una reliquia vivente che porta con sé un’eco di antiche battaglie.
+
+Con un salto calcolo il mio posizionamento e apro il fuoco, scaricando due colpi con la mia pistola al plasma. Le scariche brillano nel vuoto dello spazio, trovando il bersaglio e creando brecce nel groviglio di metallo vivente. Mi muovo rapidamente verso una posizione sopraelevata, sfruttando i detriti fluttuanti per nascondermi e ottenere una visuale migliore.
+
+## Capitolo IX: Il Portale del Warp
+Mentre il combattimento infuria, il Warp si manifesta con tutta la sua brutalità. Dietro l’abominio si apre un portale, un vortice oscuro e pulsante. Dal suo centro emerge una figura che supera ogni incubo: un’enorme creatura infestata di pustole e bubboni, un servo di Nurgle, l’incarnazione della decadenza e della corruzione. Il Dreadnought alleato non esita. Con un ruggito meccanico, si lancia contro la creatura, trascinandola nel portale. In un lampo di luce, entrambi scompaiono, e il portale si chiude.
+
+La battaglia, però, non è finita. Piccole creature deformi e ripugnanti, generate dal Warp, iniziano a riversarsi sul campo. Ma è allora che Azrael si erge, la luce del suo potere Psyker esplode come un faro nella notte, riducendo quegli abomini a cenere. La mia fede vacilla per un istante, ma mi aggrappo al mio addestramento. Con un respiro profondo, chiudo gli occhi. Rinuncio ai miei occhi bionici e mi affido ai miei sensi affinati. Premo il grilletto della mia pistola al plasma due volte. Sento l’energia scorrere come un fiume in piena. Quando riapro gli occhi, l’abominio giace distrutto, il suo corpo inerte che fluttua tra i resti metallici.
+
+## Capitolo X: La Benedizione dei Caduti
+Il silenzio cala di nuovo, ma questa volta è solenne, carico di qualcosa di sacro. Davanti a noi appaiono figure spettrali, quindici Space Marine di vari Capitoli. Le loro sagome luminose ci osservano in silenzio, i loro volti immobili e gravi. Uno a uno, iniziano a svanire, come se trovassero finalmente pace dopo millenni di tormento. Quando rimane solo l’ultimo spirito, le sue parole sono un sussurro che riecheggia nelle nostre menti: “Grazie. Gloria all’Imperatore.” E poi, anche lui svanisce.
+
+## Capitolo XI: Il Generatore e il Piano Finale
+Tornati al relitto, Xa’Vor si collega a un terminale, scoprendo un’altra IA. Questa, però, non è stata corrotta. Parla con una voce fredda e meccanica, rivelandoci informazioni custodite per millenni. La nave ha ventunomila anni. Tra i dati acquisiti, apprendiamo che circa novemila anni fa è stata scaraventata nel Warp, condannata a un destino di desolazione e sofferenza.
+
+Alla fine della procedura, Xa’Vor ordina all’IA di cessare tutte le sue attività. L’intelligenza artificiale esegue l’ordine, ma prima di spegnersi, apre uno scomparto nascosto, rivelando al suo interno un generatore. Lo prendiamo, sapendo che sarà vitale per riparare la nostra nave.
+
+Ma non possiamo lasciare queste navi così come sono. Io e Xa’Vor, in accordo con Tyrion e gli altri, elaboriamo un piano: creeremo una detonazione controllata che distruggerà tutto ciò che rimane di questo agglomerato. I generatori collegati esploderanno, e con essi ogni traccia del male che vi dimorava. Accendiamo i dispositivi e ci allontaniamo. L’esplosione è colossale, un sole improvviso che illumina per un istante il vuoto cosmico. Sento che con essa abbiamo dato pace a quei caduti che ci avevano osservato.
+
+## Capitolo XII: Il Richiamo della Salvezza
+L’energia dell’esplosione rivela una nuova speranza: un piccolo segnale ci guida verso un pianeta censito dall’Imperium in questo quadrante. Finalmente conosciamo la nostra posizione. Mentre ci avviciniamo, riceviamo un altro segnale, questa volta un richiamo diretto. Sul nostro oloproiettore appare l’immagine di un’umana che chiede aiuto, il suo volto segnato dalla disperazione. Sappiamo che la strada per raggiungere questa nuova destinazione ci richiederà tre giorni. Tre giorni di incertezza e preparativi, ma con la consapevolezza che l’Imperatore veglia su di noi.
+
+E così, ancora una volta, ci mettiamo in marcia verso l’ignoto.

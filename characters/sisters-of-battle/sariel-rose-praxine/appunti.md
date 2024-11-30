@@ -13,13 +13,13 @@ Eppure, anche in quei giorni di pace, c’era sempre un’ombra. Gli insegnanti 
 Sariel aveva ascoltato quelle parole, ma non le aveva mai davvero comprese. Come poteva, quando il suo mondo era così perfetto?
 
 ### La Caduta
-Il cielo si era spezzato durante una calda giornata d’estate. Sariel stava giocando con i suoi fratelli nei giardini della tenuta, mentre la sua sorella maggiore, Darya, cantava un antico inno. Poi, senza preavviso, un’oscurità innaturale aveva avvolto tutto. Le nuvole si erano addensate in pochi istanti, il vento si era alzato, e un suono stridente aveva riempito l’aria, come il lamento di mille anime dannate.
+Il cielo si era spezzato durante una calda giornata d’estate. Sariel stava giocando con i suoi fratelli nei giardini della tenuta. Poi, senza preavviso, un’oscurità innaturale aveva avvolto tutto. Le nuvole si erano addensate in pochi istanti, il vento si era alzato, e un suono stridente aveva riempito l’aria, come il lamento di mille anime dannate.
 
 Poi erano arrivati i demoni.
 
 Sariel ricordava ogni dettaglio con una chiarezza che l’aveva perseguitata per anni. Le creature erano emerse da una frattura nel cielo, mostri deformi che sembravano scolpiti da incubi. Il primo attacco aveva distrutto metà della villa. Suo padre l’aveva afferrata per mano, urlandole di correre. Lei aveva sentito le grida dei suoi fratelli, i loro volti pieni di terrore mentre venivano strappati via uno a uno.
 
-Sua madre era morta proteggendo i più piccoli, le sue ultime parole un’invocazione all’Imperatore. Darya, la più vicina a Sariel per età, aveva combattuto con ogni grammo di forza che aveva, ma anche lei era stata sopraffatta. L’ultima immagine che Sariel conservava della sua sorella maggiore era quella dei suoi occhi, pieni di terrore e amore, mentre veniva trascinata nell’oscurità.
+Sua madre era morta proteggendo i più piccoli, le sue ultime parole un’invocazione all’Imperatore. L’ultima immagine che Sariel conserva di lei è quella dei suoi occhi, pieni di terrore e amore, mentre veniva trascinata nell’oscurità.
 
 Sariel stessa era stata travolta da un’onda d’energia che l’aveva lasciata priva di sensi. Quando si era risvegliata, tutto era buio.
 

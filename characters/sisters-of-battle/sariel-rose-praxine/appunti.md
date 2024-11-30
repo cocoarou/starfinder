@@ -2,7 +2,7 @@
 L’oscurità non è mai stata un’estranea per Sariel Rose Praxine. La sua vita era iniziata nella luce dorata delle pianure di Ophelia VII, ma le tenebre l’avevano reclamata troppo presto, trasformandola in qualcosa di diverso da ciò che avrebbe mai immaginato. Tuttavia, anche nelle profondità dell’ombra, la luce dell’Imperatore brillava, tenue ma costante, una guida che non l’aveva mai abbandonata.
 
 ### I Giorni della Luce
-Quando era bambina, il mondo era stato un luogo di ordine e bellezza. La sua famiglia, la casata Praxis, era una delle più antiche e rispettate di Ophelia VII. La loro tenuta si estendeva su vaste colline erbose, punteggiate da alberi secolari e campi dorati. La casa stessa era un gioiello di architettura gotica: mura di pietra scolpita, finestre alte e strette che filtravano la luce in lunghi raggi dorati, e stanze piene di reliquie e arte sacra.
+Quando era bambina, il mondo era stato un luogo di ordine e bellezza. La sua famiglia, la casata Praxine, era una delle più antiche e rispettate di Ophelia VII. La loro tenuta si estendeva su vaste colline erbose, punteggiate da alberi secolari e campi dorati. La casa stessa era un gioiello di architettura gotica: mura di pietra scolpita, finestre alte e strette che filtravano la luce in lunghi raggi dorati, e stanze piene di reliquie e arte sacra.
 
 Sariel ricordava le sere trascorse accanto al fuoco con i suoi fratelli e sorelle. Erano otto in totale, e lei, la maggiore, si sentiva spesso responsabile per tutti loro. Suo padre, un uomo austero ma amorevole, le aveva insegnato il valore della disciplina. “La nobiltà non è un privilegio,” le diceva spesso. “È un dovere. Siamo i custodi della fede e della giustizia. Non dobbiamo mai dimenticarlo.”
 

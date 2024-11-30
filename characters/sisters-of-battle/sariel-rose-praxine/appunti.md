@@ -37,7 +37,32 @@ Gli istruttori l’avevano notata subito. “La tua fede è pura,” le aveva de
 
 Ma Sariel non si sentiva grande. Non si sentiva forte. Sentiva solo un vuoto, un’assenza che non poteva colmare. La notte, si svegliava spesso con il sudore freddo sulla fronte, le urla della sua famiglia che riecheggiavano nella sua mente. Pregava, cercando risposte che non arrivavano mai.
 
-Quando le fu offerta la possibilità di unirsi alle Adepta Sororitas, accettò senza esitazione. Non perché si sentisse pronta, ma perché sapeva che non c’era altro. La fede era tutto ciò che aveva. Era la sua arma, il suo scudo, la sua ragione di vivere.
+Quando compì sedici anni, le porte delle Adepta Sororitas si aprirono per accoglierla. Fu un momento di consacrazione, un simbolo che il suo destino era più grande della tragedia che l’aveva forgiata. Ma anche in quel momento di gloria, Sariel comprese che il cammino che l’aspettava sarebbe stato lungo e spietato.
+
+### Gli Anni di Addestramento
+L’addestramento delle Sororitas era una fucina che separava le deboli dalle degne. Ogni giorno era una battaglia, non solo contro le difficoltà fisiche, ma contro il dubbio e la paura che abitano nel cuore di tutti gli esseri umani. Per Sariel, il peso dell’oscurità che aveva visto su Ophelia VII era una presenza costante. Ma lei trovava forza nella fede.
+
+Gli esercizi fisici erano duri. Senza occhi, Sariel era costretta a perfezionare ogni altro senso. Imparò a muoversi nel silenzio, a percepire la vibrazione di un nemico prima ancora che colpisse. Il suo corpo si trasformò sotto la disciplina implacabile delle Sororitas: ogni muscolo un’arma, ogni movimento una preghiera.
+
+L’addestramento spirituale era altrettanto intenso. Le giornate cominciavano all’alba, con canti di lode all’Imperatore, e terminavano con lunghi periodi di meditazione e studio delle sacre scritture. Sariel assorbì ogni parola, ogni insegnamento, come se fossero parte del suo stesso essere. La fede non era solo un’idea per lei; era il fuoco che la teneva in vita.
+
+Ma c’era un altro fuoco, più personale, che ardeva dentro di lei: il desiderio di vendetta. I demoni che avevano distrutto la sua famiglia, che avevano profanato la sua casa, dovevano essere annientati. Eppure, Sariel non lasciò mai che questa fiamma superasse il suo amore per l’Imperatore. Sapeva che la sua vendetta non doveva essere personale; doveva essere sacra.
+
+### Gli Occhi Cibernetici
+Nonostante la sua cieca precisione e il suo dono naturale, Sariel sapeva che la guerra richiede precisione assoluta. L’Imperatore chiede perfezione ai suoi servitori, e Sariel non avrebbe mai permesso che una sua debolezza, reale o percepita, mettesse a rischio una missione.
+
+All’età di vent’anni, dopo anni di servizio e addestramento, decise di ricevere un innesto di occhi cibernetici. Il processo fu lungo e doloroso. Gli occhi non erano solo strumenti di visione, ma anche avanzati dispositivi di analisi. Ogni dettaglio del campo di battaglia sarebbe stato alla sua portata: la traiettoria di un proiettile, il calore di un motore, il battito accelerato di un nemico. I nuovi occhi non rimpiazzarono il suo dono naturale, ma lo amplificarono. Sariel poteva vedere non solo ciò che era visibile, ma ciò che si nascondeva nelle ombre.
+
+Quando si guardò per la prima volta allo specchio dopo l’operazione, il suo volto le sembrò straniero. Gli occhi cibernetici erano un grigio lucente, freddi e calcolatori. Ma dietro di essi, Sariel sapeva che c’era la fiamma della sua fede. Non era una macchina; era una servitrice dell’Imperatore.
+
+### Un Cammino Solitario
+Nonostante il suo successo nell’addestramento, Sariel trovava difficile legarsi alle altre sorelle. Il trauma della perdita della sua famiglia l’aveva resa distante, incapace di fidarsi completamente. Si dedicava completamente al suo dovere, ma c’era sempre una distanza tra lei e le altre Sororitas.
+
+Eppure, non era mai sola. La sua fede era la sua compagna più intima, e il ricordo dell’Imperatore la guidava. Ogni battaglia che combatteva era un’offerta a Lui, ogni preghiera un ringraziamento per averle dato uno scopo.
+
+Quando raggiunse i gradi più alti del suo ordine, Sariel divenne una figura rispettata e temuta. Il suo nome cominciò a circolare tra i ranghi delle Sororitas e oltre. Era nota per la sua determinazione incrollabile, la sua abilità sovrumana e la luce fredda e letale dei suoi occhi cibernetici.
+
+Ma anche mentre guadagnava gloria, sapeva che il suo destino non si sarebbe fermato lì. Sentiva che l’Imperatore aveva un piano più grande per lei, un compito che avrebbe richiesto ogni briciolo di fede e forza che possedeva.
 
 ### Verso la Sacra Terra
 Ora, camminando lungo i viali della Sacra Terra, Sariel pensava a tutto ciò che l’aveva portata qui. Ogni passo risuonava come un tamburo, ogni respiro era una preghiera. Le statue dei santi e dei martiri sembravano osservarla, i loro occhi di pietra carichi di aspettative.
